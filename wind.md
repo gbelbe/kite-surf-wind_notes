@@ -1,5 +1,7 @@
 # Forward Loop 4 steps lesson
-https://www.youtube.com/watch?v=jvCoJjEmhJg
+
+
+1==> https://www.youtube.com/watch?v=jvCoJjEmhJg
 
 
 ## Step 1: Gybe faible vitesse pieds dans les straps
@@ -23,3 +25,17 @@ sur une petite vague, mais juste avant de pivoter avec le gréement, on tire sur
 
 
 on vise une vague sur laquelle on arrive au largue, voile choquée, on pousse la voile sur le coté et en avant une fois sur le haut de la vague, on tire sur le pied arrière et, une fois en l'air borde avec la main arrière placée bien en arrière en poussant avec la main avant.
+
+
+2 ===> Loop clinic: https://youtu.be/kyYgn9n_9ZQ
+
+Pour aider les sauts et préparer le forward, essayer de faire des tail grabs avec la main arrière, en remontant bien le pied arrière sous les fesses.
+
+1.  on se prépare en avance, on écarte les mains (main arrière en arrière) 
+    on ouvre bien la voile quand on saute, pour que le nez puisse pointer vers le haut.
+
+2.  on pousse le gréement en avant et sur le côté et on regarde en arrière par dessus son épaule en bordant avec le bras arrière
+
+3.  on tend les bras quand on atterit
+
+
