@@ -1,3 +1,11 @@
+# Best practices waves
+
+1. Straps bien larges pour bien surfer
+2. Pour passer les mousses, accelerer au max et ne pas hésiter à abattre franchement entre les séries
+3. Mieux vaut une session à fond de 1h30 / 2h que une trop longue moyenne
+
+
+
 # Forward Loop 4 steps lesson
 
 
